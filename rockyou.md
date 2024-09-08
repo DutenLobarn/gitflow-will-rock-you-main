@@ -10,7 +10,10 @@ Kicking your can all over the place, singin'
 We will, we will rock you
 We will, we will rock you
 ## Verse 2
-
+Buddy, you're a young man, hard man
+Shouting in the street, gonna take on the world someday
+You got blood on your face, you big disgrace
+Waving your banner all over the place
 ## Chorus 2
 
 ## Verse 3
