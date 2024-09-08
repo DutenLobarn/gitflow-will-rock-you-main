@@ -12,3 +12,8 @@ Gitflow style
 ## Verse 3
 
 ## Chorus 3
+We will, we will rock you, yeah, yeah, come on
+We will, we will rock you, alright, louder!
+We will, we will rock you, one more time
+We will, we will rock you
+Yeah
